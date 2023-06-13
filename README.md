@@ -1,1 +1,0 @@
-# nickcomactivate.github.io
